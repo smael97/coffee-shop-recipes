@@ -27,4 +27,4 @@
 
 ### Step 4
 
-- Top with nut milk
+- Top with nut milk.
