@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 2 Tbsp homemade Hazelnut Syrup
+- 2 Tbsp homemade nut Syrup
 - 8 oz Mocha Flavored Coffee
 - 4 oz whole milk
 - 1/4 cup whipped cream
